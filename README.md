@@ -1,0 +1,1 @@
+# elementi_di_informatica_grafica_appello_nov2012
